@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This is test!"
-date:   2020-08-17 23:00:00
+date:   2020-08-17 23:00:00 -4000
 categories: jekyll update
 ---
 Here's a test. What's happening here wtffff
