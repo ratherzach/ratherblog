@@ -1,2 +1,7 @@
-# New Post
-Here's a new post.
+---
+layout: post
+title:  "test"
+date:   2020-08-17 23:00:00
+categories: jekyll update
+---
+Here's a test.
