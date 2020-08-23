@@ -10,7 +10,7 @@ I was shuffling around the field, just talking to people. We were deciding what 
 
 Walking over to the smaller field, I notice Matt K's brother not participating in the activity. Halfway joking, I was yelling to him to get on the field. His partner was Caitlin M, she was also yelling something from the other side. Part of me wanted him to finish the activity so we could leave, and the other part of me wanted to take his spot... so I ran onto the field toward Caitlin.
 
-She explained the game to me, we had to run 5 times across the field. I thought that sounded fine and I was ready to do a really good job and impress everyone. She then showed me a dance move that had to be done, it wasn't just running. Basically, step 1 was hands out palms up and feet separated, step 2 was arms crossed in front and feed crossed. Like a dance from Grease.
+She explained the game to me, we had to run 5 times across the field. I thought that sounded fine and I was ready to do a really good job and impress everyone. She then showed me a dance move that had to be done, it wasn't just running. Basically, step 1 was hands out palms up and feet separated, step 2 was arms crossed in front and feet crossed. Like a dance from the movie Grease.
 
 I told her how silly that was and "I can't do that!" but she said I had to. She counted down and I awkwardly started, but she didn't do the dance. She just jogged along. I was upset, but it was kind of funny, and said "Why aren't you doing this?!" and she said it was only for me to do. "That's the rule."
 
