@@ -8,7 +8,7 @@ I was at a school football field and sports complex, it was a warm night. Big li
 
 I was shuffling around the field, just talking to people. We were deciding what to do for dinner and plans after leaving the stadium. There were about a dozen people on a smaller field still doing some type of physical practice or activity, we were all waiting on them to finish before we could leave.
 
-Walking over to the smaller field, I notice Matt Kopkin's brother not participating in the activity. Halfway joking, I was yelling to him to get on the field. His partner was Caitlin M, she was also yelling something from the other side. Part of me wanted him to finish the activity so we could leave, and the other part of me wanted to take his spot... so I ran onto the field toward Caitlin.
+Walking over to the smaller field, I notice Matt K's brother not participating in the activity. Halfway joking, I was yelling to him to get on the field. His partner was Caitlin M, she was also yelling something from the other side. Part of me wanted him to finish the activity so we could leave, and the other part of me wanted to take his spot... so I ran onto the field toward Caitlin.
 
 She explained the game to me, we had to run 5 times across the field. I thought that sounded fine and I was ready to do a really good job and impress everyone. She then showed me a dance move that had to be done, it wasn't just running. Basically, step 1 was hands out palms up and feet separated, step 2 was arms crossed in front and feed crossed. Like a dance from Grease.
 
